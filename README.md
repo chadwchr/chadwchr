@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @chadwchr
+- 👀 I’m interested in creating new and/or better things.
+- 🌱 I’m currently learning multiple types of things.
+- 💞️ I’m currently not looking to collaborate on something.
+- 📫 How to reach me: Twitter... yeah. Same name and stuff like that.
